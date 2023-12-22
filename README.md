@@ -1,1 +1,1 @@
-Intern as Web Developer
+Internship Tasks
